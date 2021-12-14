@@ -6,7 +6,7 @@
 
 *Affiliation*
 
-Digital Business Transformation, College of Inovation, Thammasat University, Thailand
+Digital Business Transformation, College of Innovation, Thammasat University, Thailand
 
 
 *Abstract*
